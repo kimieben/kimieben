@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kimieben
-- 👀 I’m interested in women.
+- 👀 I’m interested in tall women.
 - 🌱 I’m currently learning ErLang.
 - 💞️ I’m looking to collaborate on MLBB.
 - 📫 How to reach me twitter @kimiemio
