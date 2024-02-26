@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kimieben
 - 👀 I’m interested in tall women.
-- 🌱 I’m currently learning ErLang.
+- 🌱 I’m currently learning ErLang and App Script (for Google Sheets).
 - 💞️ I’m looking to collaborate on MLBB.
 - 📫 How to reach me twitter @kimiemio
 - ⚡ Fun fact: I'm not a fun guy.
